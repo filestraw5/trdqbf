@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 14时30分22秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>稀土价格政策收储后上涨12%，稀土永磁板块集体异动</h3><br><p>武汉马拉松开跑，2.5万跑者穿越长江大桥刷新赛事纪录。<br><br> | 来源：<code>mlxtf.cn
+</code></p><br><br><h3>民宿行业规范发展政策，乡村旅游标的全线拉升</h3><br><p>特斯拉机器人Optimus新进展，人形机器人板块异动。<br><br> | 来源：<code>tupianqiang.com
+</code></p><br><br><h3>文化纸价格单月上涨6%，纸企盈利边际改善</h3><br><p>知名私募调研钠电池龙头，量产线投产时间点首次公开。<br><br> | 来源：<code>hsronghua.com
+</code></p><br><br><h3>绿电交易规模翻倍，绿电运营板块集体上涨</h3><br><p>华为昇腾算力集群规模破万卡，支撑超百家大模型企业训练。<br><br> | 来源：<code>dygs2b.com
+</code></p><br><br><h3>上半年全国新能源汽车电池出口同比增长40%</h3><br><p>新疆交建一带一路优势：新疆区域基建的长期成长逻辑。<br><br> | 来源：<code>s9tattoo.com
+</code></p><br><br><h3>跨境电商综合试验区扩容，跨境物流板块集体上涨</h3><br><p>国产大飞机C919批量交付，民航产业链标的上涨。<br><br> | 来源：<code>yilianyoumeng.com
+</code></p><br><br><h3>QFII大幅加仓低空经济龙头，单季度持股翻倍引市场关注</h3><br><p>坚果产品价格上涨5%，休闲食品龙头盈利改善。<br><br> | 来源：<code>www.zhongyichufang.cn
+</code></p><br><br><h3>薯片产品价格上调4%，零食板块迎来涨价催化</h3><br><p>社保基金新进智慧矿山龙头，布局煤矿智能化改造赛道。<br><br> | 来源：<code>www.muzhien.cn
+</code></p><br><br><h3>机构+北向合力买入当升科技8200万，正极材料标的布局</h3><br><p>海绵城市建设推广，海绵城市板块集体上涨。<br><br> | 来源：<code>www.jiezhishan.cn
+</code></p><br><br><h3>亿纬锂能异动拉升6.3%，大储订单持续超预期</h3><br><p>全面降准叠加定向降息，宽货币向宽信用传导加速。<br><br> | 来源：<code>www.qinjin365.cn
+</code></p><br><br><h3>中芯国际放量拉升7.1%，半导体国产替代逻辑再强化</h3><br><p>坚果产品价格上涨5%，休闲食品龙头盈利改善。<br><br> | 来源：<code>www.siqiyes.cn
+</code></p><br><br><h3>三星堆新出土文物超千件，古蜀文明研究取得重大突破</h3><br><p>盈利的核心逻辑：在低估时布局，在逻辑兑现时离场。<br><br> | 来源：<code>www.siqixue.cn
+</code></p><br><br><h3>1年期LPR下调5BP，实体经济融资成本稳步下行</h3><br><p>包装纸价格上涨5%，包装板块成本端压力传导顺畅。<br><br> | 来源：<code>www.cunyinbao.cn
+</code></p><br><br><h3>全国农村人居环境整治提升，生活垃圾无害化处理率达97%</h3><br><p>国内潮玩文旅融合项目爆发，主题潮玩展暑期吸引超千万人。<br><br> | 来源：<code>www.iamz.cn
+</code></p><br><br><h3>中芯国际单季盈利创历史新高，半导体板块全线走强</h3><br><p>通威股份异动拉升5.2%，渔光互补项目持续落地。<br><br> | 来源：<code>www.yifanwu.cn
+</code></p><br><br><h3>高管团队集体增持智慧交通标的，合计增持金额超1.2亿</h3><br><p>云南建投放量上涨3.4%，南亚基建订单落地加速。<br><br> | 来源：<code>www.michaelyang.cn
+</code></p><br><br><h3>QFII集中调研休闲食品龙头，线下渠道复购率数据公开</h3><br><p>大模型安全国家标准发布，行业合规发展有章可循。<br><br> | 来源：<code>www.bengcuan.cn
+</code></p><br><br><h3>国电南瑞电力数字化：新型电力系统建设下的长期受益</h3><br><p>多地推出夜间文旅补贴，商户夜间经营成本下降30%。<br><br> | 来源：<code>www.zn-edu.cn
+</code></p><br><br><h3>QFII集中调研宠物食品龙头，海外市场渗透率数据公开</h3><br><p>成都大运会成功举办一周年，赛事遗产带动城市文旅增长。<br><br> | 来源：<code>www.imrok.com.cn
+</code></p><br><br><h3>财政部出台减税降费新政，全年为企业减负超1.2万亿元</h3><br><p>纸价开启新一轮提价潮，造纸板块盈利迎来修复。<br><br> | 来源：<code>www.shutaotc.cn
