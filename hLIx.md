@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 16时19分28秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>海大集团饲料市占率提升，单季业绩预告超预期</h3><br><p>铜价创半年新高，铜业上市公司盈利迎来边际改善。<br><br> | 来源：<code>www.jiezhishan.cn
+</code></p><br><br><h3>北向资金连续流入紫金矿业，黄金龙头外资持仓持续提升</h3><br><p>阳光电源海外逆变器爆发，前三季度业绩预增110%。<br><br> | 来源：<code>www.qinjin365.cn
+</code></p><br><br><h3>上半年全国锂电池出口同比增长32%，新能源产品出口亮眼</h3><br><p>三安光电涨超4.2%，LED芯片需求边际改善。<br><br> | 来源：<code>www.siqiyes.cn
+</code></p><br><br><h3>硅片价格单月上涨5%，光伏制造环节盈利边际改善</h3><br><p>美联储宣布降息25个基点，全球货币政策转向宽松周期。<br><br> | 来源：<code>www.siqixue.cn
+</code></p><br><br><h3>北向资金连续加仓东方财富，互联网券商获外资持续流入</h3><br><p>游戏大模型落地，AI实时生成游戏场景大幅降低开发成本。<br><br> | 来源：<code>www.cunyinbao.cn
+</code></p><br><br><h3>全国农产品网络零售额上半年突破3500亿元，助力乡村振兴</h3><br><p>AI数字人直播常态化，超十万直播间启用AI虚拟主播。<br><br> | 来源：<code>www.iamz.cn
+</code></p><br><br><h3>养老服务体系建设政策，养老产业标的全线走强</h3><br><p>调味品开启集体涨价，食品板块盈利迎来修复。<br><br> | 来源：<code>www.yifanwu.cn
+</code></p><br><br><h3>动力电池回收管理办法出台，锂电回收板块全线异动</h3><br><p>派能科技户用储能爆发，单季业绩预告超预期。<br><br> | 来源：<code>www.michaelyang.cn
+</code></p><br><br><h3>多地推出文旅惠民卡，年卡销量破百万撬动百亿消费</h3><br><p>预制菜核心标的开启新股申购，B端渠道覆盖全国连锁餐饮。<br><br> | 来源：<code>www.bengcuan.cn
+</code></p><br><br><h3>机器人产业发展规划发布，人形机器人板块集体上涨</h3><br><p>控股股东耗资2.5亿增持储能电池标的，彰显海外订单信心。<br><br> | 来源：<code>www.zn-edu.cn
+</code></p><br><br><h3>阳光电源逆变器技术：全球逆变器龙头的技术迭代能力</h3><br><p>钠离子电池材料价格上涨8%，钠电池产业链盈利优化。<br><br> | 来源：<code>www.imrok.com.cn
+</code></p><br><br><h3>山西汾酒青花系列批价上涨7%，清香白酒板块景气回升</h3><br><p>美联储降息后美债收益率下行，外资回流中国权益市场。<br><br> | 来源：<code>www.shutaotc.cn
+</code></p><br><br><h3>QFII集中调研快递物流龙头，单票盈利创历史新高</h3><br><p>中国神华煤炭量价齐升，前三季度业绩预增超15%。<br><br> | 来源：<code>www.easome.cn
+</code></p><br><br><h3>美联储降息周期开启，北向资金持续流入核心资产</h3><br><p>OpenAI发布多模态大模型，AI应用板块集体异动。<br><br> | 来源：<code>www.toolzhe.cn
+</code></p><br><br><h3>教育部新增37个高校专业，聚焦人工智能、生物医药等前沿领域</h3><br><p>恒力石化炼化一体化布局：民营大炼化龙头的盈利韧性。<br><br> | 来源：<code>www.silvertimes.cn
+</code></p><br><br><h3>西湖暑期游客量突破600万人次，免费景区持续释放民生红利</h3><br><p>五粮液批价上涨5%，次高端白酒板块迎来行情。<br><br> | 来源：<code>www.ahhaiquan.cn
+</code></p><br><br><h3>思源电气电网设备优势：民营电网设备龙头的技术积累</h3><br><p>地方国资战略入股种业龙头，助力生物育种商业化落地。<br><br> | 来源：<code>www.3excel.cn
+</code></p><br><br><h3>外资资管连续加仓风电轴承龙头，大兆瓦轴承获外资重仓</h3><br><p>浪潮信息AI服务器产能：国内AI服务器龙头的份额优势。<br><br> | 来源：<code>www.81988888.cn
+</code></p><br><br><h3>基金公司集体到访机器人控制器标的，国产控制器市占率提升</h3><br><p>产业资本连续3周增持存储芯片龙头，累计增持金额超8亿。<br><br> | 来源：<code>zhongyichufang.cn
+</code></p><br><br><h3>超170家机构到访PCB龙头，AI服务器板订单同比翻倍</h3><br><p>国产EDA龙头登陆科创板，核心技术打破海外垄断引市场关注。<br><br> | 来源：<code>muzhien.cn
