@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分54秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>威海暑期滨海游火爆，国际海水浴场日均客流超10万</h3><br><p>全国青少年体育赛事覆盖所有项目，参赛人次突破千万。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>牧原股份养殖成本控制：生猪养殖龙头的核心竞争力</h3><br><p>牧原股份养殖成本下降，单季业绩预告环比扭亏。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>外资资管连续加仓风电轴承龙头，大兆瓦轴承获外资重仓</h3><br><p>国产音乐综艺全网播放量突破200亿，原创音乐人才涌现。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>锌价突破2.8万元/吨，锌业上市公司盈利弹性释放</h3><br><p>中微公司刻蚀设备技术：半导体设备细分龙头的核心壁垒。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>智慧景区全覆盖，全国5A景区全部实现刷脸入园智能导览</h3><br><p>汽车出口数据亮眼：自主车企、零部件的业绩增量分析。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>复合肥价格上调7%，化肥全产业链盈利优化</h3><br><p>养老金入市比例提升，养老金重仓标的走强。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>中国女子手球队拿到奥运资格，时隔28年重返奥运赛场</h3><br><p>特变电工新能源多赛道布局：从输变电到新能源的转型。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>中澳关系持续回暖，双边贸易额同比增长12%</h3><br><p>全国城镇调查失业率降至4.8%，就业形势保持总体稳定。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>光伏组件出口创历史新高，光伏海外链标的走强</h3><br><p>控股股东耗资5.2亿增持智慧交通标的，回购股份用于股权激励。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>中国女子冰球队世锦赛升组，重返顶级赛事行列</h3><br><p>政策性银行加大降息力度，基建项目融资成本大幅下降。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>东方盛虹EVA树脂优势：光伏胶膜原料龙头的景气受益</h3><br><p>实控人承诺12个月内不减持智慧矿山标的，稳定市场预期。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>自动驾驶大模型迭代，端到端算法落地量产车型</h3><br><p>华为星闪技术大规模商用，相关产业链标的领涨。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>央行表态不搞"大水漫灌"，精准降息支持实体经济重点领域</h3><br><p>国产美食纪录片全网播放量突破180亿，舌尖上的中国系列持续更新。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>蔚来汽车毛利率转正，单季业绩预告环比大幅改善</h3><br><p>央行超额续作MLF并降息5BP，流动性宽松信号明确。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>洋河股份渠道改革：白酒企业渠道优化的成功案例解析</h3><br><p>锂矿板块触底反弹：行业拐点是否已经正式确立。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>巴西经济复苏，二季度农业工业双增长</h3><br><p>上半年全国财政收入同比增长3.7%，民生支出占比超70%。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>中国游泳队世锦赛斩获5金，打破2项世界纪录领跑泳坛</h3><br><p>北方稀土政策壁垒：稀土开采总量控制下的稀缺性价值。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>兆易创新存储芯片价格反弹，前三季度业绩预增超70%</h3><br><p>武汉长江灯光秀暑期上新，吸引超千万游客观赏打卡。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>全国"无废城市"试点扩围至100个，固废资源化利用提速</h3><br><p>游资知名席位联手买入固德威5000万，储能标的获追捧。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>江铃汽车新能源轻卡高增，单季业绩预告超预期</h3><br><p>知名私募调研钙钛矿设备标的，核心设备交付周期缩短。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>梅花生物氨基酸优势：生物发酵龙头的成本与技术壁垒</h3><br><p>中科院紫东太初大模型2.0发布，全模态能力国际领先。<br><br> | 来源：<code>www.zkcom-iot.com
