@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时39分36秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>固德威户用储能布局：储能赛道细分龙头的成长路径</h3><br><p>中航沈飞涨超4.7%，军机交付进度超市场预期。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>沪硅产业涨超5.8%，12英寸硅片产能持续释放</h3><br><p>牧原股份涨超4.7%，生猪价格周期拐点显现。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>央行宣布定向降准1个百分点，精准支持普惠金融领域</h3><br><p>国际金价创历史新高，黄金珠宝标的集体上涨。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>鸡肉价格单月上涨15%，白羽鸡板块盈利弹性释放</h3><br><p>三一重工突破半年线，中期趋势逐步转强。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>贵州茅台近5年财务复盘：高毛利背后的盈利稳定性逻辑</h3><br><p>海南自贸港封关运作准备全面就绪，政策红利加速释放。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>东方财富放量大涨，券商异动下的人气激活信号</h3><br><p>大模型在农业病虫害防治领域应用，减少农药使用20%。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>中国建筑基建订单饱满，前三季度业绩预增超12%</h3><br><p>中国电建绿电运营：新能源电站的长期稳定现金流价值。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>美欧贸易谈判达成协议，解决钢铁铝关税争端</h3><br><p>养老金新进AI芯片设计标的，布局大模型推理芯片赛道。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>伊利股份乳制品量价齐升，前三季度业绩预增超20%</h3><br><p>洛阳龙门石窟暑期游客量突破200万人次，石窟艺术游受追捧。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>紫金矿业沿5日均线上行，趋势行情下的持仓策略</h3><br><p>WTT新乡世界杯，孙颖莎卫冕女单冠军实现赛季大满贯。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>美的集团创年内新高，海外家电收入增速超20%</h3><br><p>张伟丽卫冕UFC女子草量级冠军，成功守住金腰带。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>央行宣布定向降准1个百分点，精准支持普惠金融领域</h3><br><p>教育大模型落地全国万所学校，个性化辅导覆盖千万学生。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>天合光能N型技术优势：光伏行业技术迭代下的领先地位</h3><br><p>铜价创半年新高，铜业上市公司盈利迎来边际改善。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>地方国资战略入股汽车轻量化标的，助力一体化压铸产能释放</h3><br><p>长电科技先进封装放量，前三季度业绩预增超50%。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>全球绿色建筑市场规模突破3万亿美元，低碳建筑普及</h3><br><p>电源芯片价格上涨7%，模拟芯片板块景气回升。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>中国跆拳道队世锦赛斩获5金，金牌数位列奖牌榜第一</h3><br><p>赛力斯华为车型销量破10万，单季业绩减亏超预期。<br><br> | 来源：<code>www.gntbz.cn
+</code></p><br><br><h3>研学旅行扶持政策，教育旅游板块集体上涨</h3><br><p>挪威经济稳步增长，油气和新能源产业协同发展。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>中国男子沙滩排球队闯入亚运会决赛，创历史最佳成绩</h3><br><p>智能制造政策升级，机器人自动化板块集体上涨。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>外资资管举牌消费电子龙头，苹果产业链获外资持续加仓</h3><br><p>AI代码助手普及，程序员开发效率平均提升40%。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>中国跆拳道队世锦赛斩获5金，金牌数位列奖牌榜第一</h3><br><p>海缆价格上调5%，海缆龙头订单盈利弹性提升。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>啤酒开启新一轮涨价潮，啤酒板块盈利弹性释放</h3><br><p>保险资管扎堆调研CRO龙头，创新药管线临床数据披露。<br><br> | 来源：<code>www.ituijie.com
