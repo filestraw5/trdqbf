@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分59秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>国内潮玩文旅融合项目爆发，主题潮玩展暑期吸引超千万人</h3><br><p>实控人兜底式增持AI大模型标的，员工参与规模超预期。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>除草剂价格单月上涨15%，农药龙头盈利修复超预期</h3><br><p>外资机构集中调研存储芯片龙头，海外订单情况成焦点。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>保利发展央企销售高增，前三季度业绩预增超20%</h3><br><p>罕见病药物医保激励政策，罕见病药标的走强。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>券商研究所扎堆调研AI芯片设计标的，大模型推理芯片流片成功</h3><br><p>三一重工数字化转型：工程机械龙头的效率提升路径。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>保利发展央企地产优势：融资成本与资源获取的双重优势</h3><br><p>国内高端旅游产品走俏，定制游订单同比增长90%。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>金龙汽车涨超3.6%，新能源客车订单持续落地</h3><br><p>央行加大逆回购操作并下调利率，短期流动性持续充裕。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>海绵城市建设推广，海绵城市板块集体上涨</h3><br><p>低空经济龙头登陆创业板，eVTOL适航认证进度成核心看点。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>美联储连续第二次降息，北向资金单日净流入超百亿</h3><br><p>头部券商到访汽车座椅龙头，新势力车企订单占比突破50%。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>AI大模型企业启动申购，ToB付费转化率超行业平均水平</h3><br><p>丽江暑期民宿入住率达95%，云南文旅市场持续回暖。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>保险资管连续增持AI安防龙头，海外订单高增获机构认可</h3><br><p>中药配方颗粒政策放开，中药板块集体走强。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>沪股通席位单日买入美的集团2.1亿，家电龙头获外资增持</h3><br><p>建筑光伏一体化政策，BIPV标的全线拉升。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>中国跆拳道队世锦赛斩获5金，金牌数位列奖牌榜第一</h3><br><p>炒股最难的不是买对，而是在波动里守住正确的持仓。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>安凯客车涨超4.3%，客车出口订单同比增长</h3><br><p>中国铁建全球工程布局：轨交基建龙头的海外市场拓展。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>全国青少年体育赛事覆盖所有项目，参赛人次突破千万</h3><br><p>高管团队集体调研后集中增持6G通信标的，合计增持超1亿。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>原油价格突破85美元/桶，油气开采板块盈利提升</h3><br><p>1年期MLF利率下调带动全市场利率下行，债券牛市延续。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>中国男子皮划艇队世锦赛夺冠，静水项目实现金牌零突破</h3><br><p>“双减”成效显著，校外违规培训机构清零率超98%。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>国产动画电影票房上半年突破80亿元，国漫IP影响力扩大</h3><br><p>证监会出台资本市场提质新政，鼓励上市公司加大分红比例。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>外资资管连续加仓CXO龙头，近3月持仓占比提升至7%</h3><br><p>研学旅行扶持政策，教育旅游板块集体上涨。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>券商研究所扎堆调研车载芯片龙头，车规级认证进度超预期</h3><br><p>钴价连续上涨13%，3C电池板块盈利提升。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>外资单日扫货药明康德18亿，CXO赛道获外资集中流入</h3><br><p>社保基金现身半导体材料龙头，国产替代率突破70%。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>液冷技术标的开启新股申购，AI数据中心液冷订单爆发式增长</h3><br><p>北向资金连续增持快递物流龙头，单票盈利改善获外资加仓。<br><br> | 来源：<code>www.trqgzc.com
