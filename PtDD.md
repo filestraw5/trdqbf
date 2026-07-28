@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分20秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>逆向投资不是盲目抄底：在行业逻辑反转时布局，胜率才最高</h3><br><p>葡萄牙经济增速达2.3%，旅游业持续拉动增长。<br><br> | 来源：<code>https://cn-wd-tiyu.com.cn
+</code></p><br><br><h3>北向资金举牌人形机器人标的，持股比例首次突破5%红线</h3><br><p>高管团队集体增持短视频出海标的，合计增持超9000万。<br><br> | 来源：<code>https://cn-worldcup-huodong.com
+</code></p><br><br><h3>全国珠江流域生态补水工程启动，流域生态流量保障达标</h3><br><p>内蒙古草原暑期游火爆，那达慕大会吸引超百万游客参与。<br><br> | 来源：<code>https://cn-worldcup-peilv.com
+</code></p><br><br><h3>中国围棋AI算法登顶世界，人工智能助力棋类运动发展</h3><br><p>全国新能源装机容量突破21亿千瓦，占总装机比重超52%。<br><br> | 来源：<code>https://cn-worldcup-score-rate.com
+</code></p><br><br><h3>全国船舶排放控制区扩大，海运污染减排成效突出</h3><br><p>全国矿山生态修复面积年度完成超2万公顷，废弃矿山变绿洲。<br><br> | 来源：<code>https://cn-worldcup-xiazhu.com
+</code></p><br><br><h3>五粮液重回160元，消费板块复苏逻辑逐步验证</h3><br><p>高管团队集体增持宠物食品龙头，合计增持超6500万。<br><br> | 来源：<code>https://cn-xiuxiushipin.com.cn
+</code></p><br><br><h3>中国冲浪队首次获得世界冠军，水上运动版图持续扩大</h3><br><p>种业振兴行动方案落地，种业标的全线异动。<br><br> | 来源：<code>https://cn-xueshengmei.cn
+</code></p><br><br><h3>北向资金大额增持中兴通讯，通信龙头外资持仓环比大增</h3><br><p>控股股东耗资3亿增持车载雷达标的，回购注销增厚业绩。<br><br> | 来源：<code>https://cn-yamei-sports.com.cn
+</code></p><br><br><h3>特变电工新能源多赛道布局：从输变电到新能源的转型</h3><br><p>湖南投资涨超2.1%，长沙路桥业务持续向好。<br><br> | 来源：<code>https://cn-yinghuashipin.com.cn
+</code></p><br><br><h3>10年期国债收益率下行至历史低位，高股息资产配置价值凸显</h3><br><p>北京环球影城暑期单日客流破5万，周边酒店一房难求。<br><br> | 来源：<code>https://cn91.com.cn
+</code></p><br><br><h3>中国中冶冶金工程高增，单季业绩预告超预期</h3><br><p>中国棒球队首次晋级世界杯决赛圈，棒球运动迎来新发展。<br><br> | 来源：<code>https://com91.com.cn
+</code></p><br><br><h3>伊利股份涨超3.2%，乳制品行业需求回暖</h3><br><p>全国统一大市场建设取得阶段性进展，流通成本下降15%。<br><br> | 来源：<code>https://cpp-official-app.com
+</code></p><br><br><h3>尿素价格单月上涨9%，化肥板块迎来产品涨价催化</h3><br><p>上半年全国风电装机新增超3000万千瓦，清洁能源建设提速。<br><br> | 来源：<code>https://crazy-winner-aaa.com
+</code></p><br><br><h3>存款利率下调推动居民储蓄搬家，权益市场增量资金入场</h3><br><p>长安汽车新能源盈利转正，单季净利润同比增200%。<br><br> | 来源：<code>https://csfgae.cn
+</code></p><br><br><h3>国内露营装备市场规模破千亿，国产品牌占据90%市场份额</h3><br><p>全球智能穿戴市场规模突破2000亿美元，消费电子回暖。<br><br> | 来源：<code>https://cuimiandailaidexingfushenghuo.cn
+</code></p><br><br><h3>国家统计局发布新动能指数，同比增长17%创新高</h3><br><p>知名私募大手笔增持汽车轻量化标的，持仓占比突破4%。<br><br> | 来源：<code>https://cun-zhi-tiaozhan.com.cn
+</code></p><br><br><h3>国内邮轮市场重启，首艘国产大型邮轮首航票售罄</h3><br><p>钴价连续上涨13%，3C电池板块盈利提升。<br><br> | 来源：<code>https://da-feiji.com.cn
+</code></p><br><br><h3>长城汽车异动拉升5.9%，坦克系列销量持续高增</h3><br><p>以色列经济逐步复苏，高科技产业重回增长轨道。<br><br> | 来源：<code>https://da-xiangjiao-yiren-wang.com.cn
+</code></p><br><br><h3>全国生物多样性观测网络建成，覆盖超3000个生态点位</h3><br><p>丹麦经济稳健增长，风电产业全球领先。<br><br> | 来源：<code>https://da-xuexiao-hua.com.cn
+</code></p><br><br><h3>全球文化产业规模突破2.5万亿美元，数字文化占比提升</h3><br><p>全国新型电力系统建设提速，新能源消纳能力提升35%。<br><br> | 来源：<code>https://dafuweng-caipiao-official.com
