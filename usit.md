@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分22秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国县域经济百强榜发布，东部地区占比超七成</h3><br><p>汉缆股份输配电布局：国内电缆行业的龙头成长路径。<br><br> | 来源：<code>https://mogushipinxiazai.com.cn
+</code></p><br><br><h3>头部公募调研汽车电子标的，车规芯片出货量环比大增</h3><br><p>除草剂价格单月上涨15%，农药龙头盈利修复超预期。<br><br> | 来源：<code>https://mogushipinzaixianguankan.com.cn
+</code></p><br><br><h3>云南泼水节暑期活动重启，单日参与游客突破50万人次</h3><br><p>中国高尔夫球业余选手夺得职业赛事冠军，人才储备充足。<br><br> | 来源：<code>https://mogutvchengpinren.com.cn
+</code></p><br><br><h3>一带一路订单释放：中字头基建的估值重塑空间解析</h3><br><p>亿纬锂能异动拉升6.3%，大储订单持续超预期。<br><br> | 来源：<code>https://mogutvrukou.com.cn
+</code></p><br><br><h3>多地发放消费券超200亿元，撬动社会消费超千亿元</h3><br><p>双汇发展肉制品盈利修复，前三季度业绩预增超20%。<br><br> | 来源：<code>https://mogutvwangyeban.com.cn
+</code></p><br><br><h3>自动驾驶大模型落地，城市NOA覆盖全国所有城市道路</h3><br><p>北方稀土行业地位：稀土全产业链龙头的政策红利。<br><br> | 来源：<code>https://moguwang.com.cn
+</code></p><br><br><h3>北方华创半导体设备订单爆发，单季业绩预增超80%</h3><br><p>知名私募组团调研MR产业链标的，新品备货数据曝光。<br><br> | 来源：<code>https://mrds-mrds.com.cn
+</code></p><br><br><h3>全国绿证交易规模突破1亿个，覆盖超20个高耗能行业</h3><br><p>知名私募调研低空飞行器标的，eVTOL适航认证进度披露。<br><br> | 来源：<code>https://mu-jiaoshi.com.cn
+</code></p><br><br><h3>产业资本集中增持休闲食品龙头，线下渠道复购改善获布局</h3><br><p>中国女子自行车队世锦赛场地赛夺冠，实现金牌突破。<br><br> | 来源：<code>https://mugua-shipin.com.cn
+</code></p><br><br><h3>宇通客车全球客车龙头优势：新能源客车的全球份额扩张</h3><br><p>云南建投放量上涨3.4%，南亚基建订单落地加速。<br><br> | 来源：<code>https://mugua-yingyuan.com.cn
+</code></p><br><br><h3>隆基绿能光伏技术迭代：HPBC+TOPCon的技术领先性</h3><br><p>文旅部推出100条乡村精品线路，带动县域文旅消费。<br><br> | 来源：<code>https://muguamanhua.com.cn
+</code></p><br><br><h3>北向资金大额增持中国平安，保险龙头外资持仓创阶段新高</h3><br><p>全国珍稀濒危植物保护名录更新，超千种植物得到有效保护。<br><br> | 来源：<code>https://muguawanguanwang.com.cn
+</code></p><br><br><h3>中国中车异动拉升，低位补涨行情的参与思路</h3><br><p>北向资金连续加仓保利发展，央企地产获外资持续布局。<br><br> | 来源：<code>https://muguawanwangye.com.cn
+</code></p><br><br><h3>降准降息组合利好地产链，建材板块迎来估值修复</h3><br><p>海南自贸港封关运作准备全面就绪，政策红利加速释放。<br><br> | 来源：<code>https://muguazhibo.com.cn
+</code></p><br><br><h3>国产大模型出海加速，东南亚市场份额突破30%</h3><br><p>万华化学研发投入优势：化工龙头持续技术迭代的底层逻辑。<br><br> | 来源：<code>https://muzi-zhuang.com.cn
+</code></p><br><br><h3>机构资金净买入宁德时代12亿，核心资产获大资金加仓</h3><br><p>全国县域旅游百强县榜单发布，江浙地区占比超六成。<br><br> | 来源：<code>https://nai-paodongman.com.cn
+</code></p><br><br><h3>医疗机器人纳入医保，医疗机器人板块全线走强</h3><br><p>国内低空文旅项目升温，热气球、滑翔伞体验订单同比暴涨。<br><br> | 来源：<code>https://naimadongman.com.cn
+</code></p><br><br><h3>公募基金集中调研智慧交通标的，车路协同项目落地节奏</h3><br><p>新能源汽车购置税减免延期，整车板块集体走强。<br><br> | 来源：<code>https://naipaodongman.com.cn
+</code></p><br><br><h3>安凯客车涨超4.3%，客车出口订单同比增长</h3><br><p>多地出台支持民营经济新政，破除市场准入隐性壁垒。<br><br> | 来源：<code>https://naipiandongman.com.cn
+</code></p><br><br><h3>全国扬子鳄野生种群数量突破2万只，野外放归成效显著</h3><br><p>外资持续流入中芯国际，半导体龙头持仓占比突破5%。<br><br> | 来源：<code>https://naiqiudongman.com.cn
