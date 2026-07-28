@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分42秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国"三北"防护林工程年度任务完成，筑牢北方生态屏障</h3><br><p>润和软件涨超7.2%，鸿蒙生态业务落地加速。<br><br> | 来源：<code>https://chi-gua-hei-liao.com.cn
+</code></p><br><br><h3>中国平安涨超3.4%，寿险新业务价值增速转正</h3><br><p>藏羚羊种群数量突破30万只，从濒危物种恢复至无危。<br><br> | 来源：<code>https://chi-gua-shipin.com.cn
+</code></p><br><br><h3>钢材价格单月上涨7%，钢铁板块迎来产品涨价催化</h3><br><p>全国PM2.5平均浓度同比下降8%，空气质量优良天数比率达87.5%。<br><br> | 来源：<code>https://chi-guaheiliao.cn
+</code></p><br><br><h3>美联储降息25BP，中概股集体暴涨带动A股联动</h3><br><p>人工智能产业标准落地，AI合规标的全线异动。<br><br> | 来源：<code>https://chi-guawang.cn
+</code></p><br><br><h3>工业互联网平台落地，工业数字化标的全线拉升</h3><br><p>社保基金新进锂电回收龙头，布局循环经济高景气赛道。<br><br> | 来源：<code>https://chigua-wang.cn
+</code></p><br><br><h3>全球农业科技市场规模突破3000亿美元，智慧农业普及</h3><br><p>恒瑞医药创新药管线：研发投入进入收获期的业绩展望。<br><br> | 来源：<code>https://chiguawang.org.cn
+</code></p><br><br><h3>国产科幻电影票房突破50亿元，《流浪地球3》刷新纪录</h3><br><p>隆基绿能涨超5.7%，HPBC组件出货量爆发。<br><br> | 来源：<code>https://chiguawangzhan.cn
+</code></p><br><br><h3>哈尔滨冰雪旅游提前预热，暑期冰雪乐园订单同比增长80%</h3><br><p>外资机构集中调研存储芯片龙头，海外订单情况成焦点。<br><br> | 来源：<code>https://chong-tian.com.cn
+</code></p><br><br><h3>机构+北向资金合力买入比亚迪9亿，整车龙头获资金认可</h3><br><p>家电出口超预期：白电、厨电的海外市场增量空间。<br><br> | 来源：<code>https://chongshengluolidao.com.cn
+</code></p><br><br><h3>高管团队集体调研后集中增持6G通信标的，合计增持超1亿</h3><br><p>海外资管组团调研光伏逆变器标的，海外市占率突破30%。<br><br> | 来源：<code>https://chuanmei-zaixianguankan.com.cn
+</code></p><br><br><h3>全国国家公园数量增至15个，保护面积超23万平方公里</h3><br><p>国产儿童动画全网播放量突破250亿，陪伴新一代青少年成长。<br><br> | 来源：<code>https://chuanmei91.com.cn
+</code></p><br><br><h3>南京马拉松开跑，选手破3万赛事服务升级体验大幅提升</h3><br><p>隆基绿能成本优势解析：光伏龙头如何持续领跑行业。<br><br> | 来源：<code>https://chuanmeimadou.cn
+</code></p><br><br><h3>赛力斯商业模式拆解：华为深度赋能下的整车成长逻辑</h3><br><p>上半年进出口总额同比增长4.2%，外贸韧性持续凸显。<br><br> | 来源：<code>https://chuanmeizaixianguankan.com.cn
+</code></p><br><br><h3>国产历史剧细节考究，多部作品成为全网热议文化现象</h3><br><p>中天科技放量上涨4.7%，海缆+储能双轮驱动。<br><br> | 来源：<code>https://chuniaoapp.cn
+</code></p><br><br><h3>长安汽车涨停封板，自主车企销量超预期引爆行情</h3><br><p>阳光电源技术迭代能力：逆变器龙头的全球竞争力。<br><br> | 来源：<code>https://chutianbenzi.com.cn
+</code></p><br><br><h3>西安大唐不夜城暑期日均客流超20万，沉浸式文旅成爆款</h3><br><p>全国中华白海豚种群数量突破5000头，近海生态持续改善。<br><br> | 来源：<code>https://chuyindao.com.cn
+</code></p><br><br><h3>政策性降息支持保障性住房建设，保障房产业链受益</h3><br><p>全国戏曲名家进校园活动覆盖万所学校，传统艺术传承从娃娃抓起。<br><br> | 来源：<code>https://cili-duo.com.cn
+</code></p><br><br><h3>蔚来汽车放量上涨8.8%，换电网络覆盖持续扩大</h3><br><p>储能温控龙头开启新股申购，海外客户覆盖全球头部厂商。<br><br> | 来源：<code>https://cili-jinniu.com.cn
+</code></p><br><br><h3>隆基绿能涨超5.7%，HPBC组件出货量爆发</h3><br><p>QFII大幅加仓预制菜龙头，B端渠道扩张获海外机构看好。<br><br> | 来源：<code>https://cili-mao.com.cn
+</code></p><br><br><h3>数字人民币核心标的启动申购，线下场景覆盖突破亿级用户</h3><br><p>商业航天准入政策放宽，商业航天标的异动。<br><br> | 来源：<code>https://cili-sousuo.com.cn
