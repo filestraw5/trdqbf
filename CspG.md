@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分44秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>隆基绿能底部抬升，上升通道内的低吸窗口显现</h3><br><p>上半年全国文化产业营收同比增长14%，文旅融合加速。<br><br> | 来源：<code>https://new-fuliji.com.cn
+</code></p><br><br><h3>AI翻译工具支持百种语言实时互译，准确率超专业译员</h3><br><p>2026年全国体育产业总规模突破4万亿，全民健身蔚然成风。<br><br> | 来源：<code>https://new-hanxiucao.cn
+</code></p><br><br><h3>超240家机构到访氢能燃料电池标的，商用车推广数据公开</h3><br><p>全国居民人均体育消费支出同比增长15%，运动成为生活方式。<br><br> | 来源：<code>https://new-hongtaoyingshi.com.cn
+</code></p><br><br><h3>基金公司集体到访机器人控制器标的，国产控制器市占率提升</h3><br><p>建立自己的交易体系：没有规则的操作，最终只会被情绪带着走。<br><br> | 来源：<code>https://new-hyou.com.cn
+</code></p><br><br><h3>天然气价格季节性上涨，燃气运营板块异动</h3><br><p>宇通客车海外出口翻倍，前三季度业绩预增超50%。<br><br> | 来源：<code>https://new-jisutiyu.com.cn
+</code></p><br><br><h3>中国国际象棋队世锦赛包揽全部金牌，智力运动世界第一</h3><br><p>泸州老窖放量上涨4.4%，国窖1573批价稳步上行。<br><br> | 来源：<code>https://new-jiujiure.com.cn
+</code></p><br><br><h3>铜版纸价格单月上涨7%，造纸细分板块迎来行情</h3><br><p>神州高铁放量上涨3.7%，轨道交通运维业务增长。<br><br> | 来源：<code>https://new-jiujiuyingshi.com.cn
+</code></p><br><br><h3>全面降准0.25个百分点，释放长期资金5000亿</h3><br><p>北向资金连续增持养老产业标的，银发经济赛道获外资流入。<br><br> | 来源：<code>https://new-lala.com.cn
+</code></p><br><br><h3>全国水泥行业碳减排技术升级，低碳生产线占比超60%</h3><br><p>海洋强国建设新规划发布，海洋经济总量突破9万亿元。<br><br> | 来源：<code>https://new-ledongsports.com.cn
+</code></p><br><br><h3>大模型在气象灾害预警领域应用，预警覆盖率提升至98%</h3><br><p>首套房贷款利率突破3%关口，地产销售边际回暖信号显现。<br><br> | 来源：<code>https://new-lulu.com.cn
+</code></p><br><br><h3>猪肉价格连续反弹20%，生猪养殖板块迎来趋势性行情</h3><br><p>小鹏汽车单季交付破3万，业绩亏损大幅收窄。<br><br> | 来源：<code>https://new-luotimeinu.com.cn
+</code></p><br><br><h3>全国人均体育场地面积达2.8平方米，健身设施供给持续增加</h3><br><p>充电桩下乡政策落地，充电桩产业链标的走强。<br><br> | 来源：<code>https://new-meiridasai.com.cn
+</code></p><br><br><h3>生活用纸价格上调4%，生活用纸龙头盈利提升</h3><br><p>长三角一体化新规划落地，长三角本地股集体拉升。<br><br> | 来源：<code>https://new-mianfeikanpian.com.cn
+</code></p><br><br><h3>央行降准0.5个百分点，释放长期资金超1万亿元支持实体经济</h3><br><p>高管团队集体增持宠物食品龙头，合计增持超6500万。<br><br> | 来源：<code>https://new-mimijiaoxue.com.cn
+</code></p><br><br><h3>上海建工涨超2.9%，上海城市更新订单爆发</h3><br><p>机构资金联手买入派能科技1.7亿，储能龙头获机构抱团。<br><br> | 来源：<code>https://new-mitaoshipin.com.cn
+</code></p><br><br><h3>成都大运会遗产持续释放，大运场馆全年免费开放超300天</h3><br><p>铅价上涨7%，铅酸电池板块盈利边际改善。<br><br> | 来源：<code>https://new-mitaoyingshi.com.cn
+</code></p><br><br><h3>北向资金大额扫货赣锋锂业2.6亿，锂矿龙头获外资流入</h3><br><p>北约峰会发布新战略文件，调整东翼防御部署。<br><br> | 来源：<code>https://new-mitaozaixian.com.cn
+</code></p><br><br><h3>上海推出“夜生活节”，夜间商户营业额同比增长60%</h3><br><p>全国城市慢行系统建设提速，绿道总里程突破15万公里。<br><br> | 来源：<code>https://new-mogu.com.cn
+</code></p><br><br><h3>基金公司集体到访机器人控制器标的，国产控制器市占率提升</h3><br><p>别把运气当成能力：短期靠运气赚的钱，迟早会凭实力亏回去。<br><br> | 来源：<code>https://new-mogushipin.com.cn
+</code></p><br><br><h3>接受市场的不完美：不要试图精准抄底逃顶，赚自己认知内的钱</h3><br><p>北向资金大额增持美的集团，家电龙头外资持仓创历史新高。<br><br> | 来源：<code>https://new-moguyingshi.com.cn
